@@ -1,2 +1,2 @@
 # kingchebeckwith.com
-king che beckwth's digital portfolio
+king che beckwith's digital portfolio
